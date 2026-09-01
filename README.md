@@ -4,5 +4,4 @@
 · · ·             ᨳ 🫀♯  ` 
 ‹‹ ♩♩♩ ` ♯
  ᨳ @️.Aka wiwi ꢆ 
-
-Lord X · Yume 🦈
+l໐r໓ x· Yume 🦈
